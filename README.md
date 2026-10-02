@@ -1,5 +1,5 @@
 # 💫 About Me:
-i'm currently in 4th year <br>i am fresher and open to work<br>willing to work in a tech industry
+I'm a recent B.Tech Graduate in the field of Information Technology <br>I Have Experience in Technical Support Engineer<br>willing to work in a tech industry
 
 
 ## 🌐 Socials:
